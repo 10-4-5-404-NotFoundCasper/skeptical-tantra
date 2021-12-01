@@ -29,7 +29,7 @@ https://metadechoc.fr/podcast/reiki-tantra-et-emprise-mentale/
 Un article à propos des limites lors d'un massage tantrique :
 https://presenceasoi.be/limites-massage-tantrique/ 
 
-Une autre article à propos des bonnes pratiques en massage tantrique :
+Un autre article à propos des bonnes pratiques en massage tantrique :
 https://presenceasoi.be/guide-bonnes-pratiques-massage-tantrique 
 
 Et pour finir, un exemple d'exercice Néo-Tantra avancé (attention, nudité) :
